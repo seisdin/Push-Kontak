@@ -1,1 +1,3 @@
 # BOT PUSH KONTAK
+          > 𝙰𝚂𝚂𝙰𝙻𝙰𝙼𝚄𝙰𝙻𝙰𝙺𝚄𝙼 𝙸𝚉𝙸𝙽 𝙿𝚄𝚂𝙷 𝙺𝙾𝙽𝚃𝙰𝙺 𝙼𝙰𝚂 ──[ ZaxxVann📌_ ]─
+          ─YG UDAH SV SEMOGA SEHAT SELALU DAN REZEKINYA DILANCARKAN
